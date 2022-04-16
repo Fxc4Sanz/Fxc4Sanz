@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Hajimemashite!! My age 15th A student who is lazy to pursue knowledge!!.
+
 <!--
 **Fxc4Sanz/Fxc4Sanz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
